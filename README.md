@@ -14,4 +14,4 @@ Credits:
 @Alvaro_games19 on scratch.mit.edu/ByAlvaro19 on youtube.com for the engine!
 Other youtubers and stuff for the OG song and the version with lyrics.
 @1_million_ants on discord
-Anyways, keep funnkin'!
+Anyways, keep funkin'!
